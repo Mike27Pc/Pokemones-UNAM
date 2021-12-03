@@ -20,7 +20,6 @@
 ![image](https://user-images.githubusercontent.com/57787993)
 
 
-
 [MichelangeloAngSanz](https://github.com/David-Lazaro-Fernandez) 
 
 ![Mike](https://assets.pokemon.com/assets/cms2/img/pokedex/full/006.png )
